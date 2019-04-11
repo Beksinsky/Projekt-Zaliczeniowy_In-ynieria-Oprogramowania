@@ -1,1 +1,1 @@
-# Projekt-Zaliczeniowy_In-ynieria-Oprogramowania
+# Projekt-Zaliczeniowy_Inzynieria-Oprogramowania
